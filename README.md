@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-- 📫 How to reach me: 
+- 📫 You can find me :
 > [Portfolio](https://yassinaji.myportfolio.com/)
 >  
 > [Email](yassin.kasem.aji@gmail.com)
